@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-  <b>wade</b>/doc he/it 20 aroace(?) intp <a href="https://pronouns.cc/@aziraphale">+</a>
+  <b>wade</b>/doc/az he/it 20 aroace(?) intp <a href="https://pronouns.cc/@aziraphale">+</a>
   <br><i><a href="https://funny.straw.page">more about me here...</a></i><br><br>
 <b>i like</b>
 cell of empireo, deadpool, welcome home, 8:11, & good omens
