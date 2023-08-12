@@ -10,5 +10,6 @@ cell of empireo, deadpool, welcome home, 8:11, & good omens
 <br>here's <a href="https://rentry.co/-spiderman">an extended list</a> with most of my interests, if you're curious
 <br><br>also, whisper to interact since i'm often offtab & might not notice
 <br>i may be shy at first but i usually warm up to people fast!
+<br><br>if you're younger than 15, keep interactions to a minimum
 <br><br><i>art is by aziraballs on twitter</i>
 </p>
