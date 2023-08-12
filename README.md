@@ -1,10 +1,14 @@
 <p align="center">
+  <i>come what may, do you ever long for true love from me?</i><br>
 <img src="https://cdn.discordapp.com/attachments/431499091269124117/1139912072747028561/awwwwww.png">
 </p>
 
 <p align="center">
   <b>wade</b>/doc he/it 20 aroace(?) intp <a href="https://en.pronouns.page/@wadewilson">+</a><br><br>
-i like 8:11, cell of empireo, deadpool, welcome home, & good omens
-<br>i have a longer list of my interests <a href="https://rentry.co/-spiderman">here</a>, if you're nosy
-  <br><br><i>art is by aziraballs on twitter</i>
+<b>i like</b>
+cell of empireo, deadpool, welcome home, 8:11, & good omens
+<br>here's <a href="https://rentry.co/-spiderman">an extended list</a> with most of my interests, if you're curious
+<br><br>also, whisper to interact since i'm often offtab & might not notice
+<br>i may be shy at first but i usually warm up to people fast!
+<br><br><i>art is by aziraballs on twitter</i>
 </p>
