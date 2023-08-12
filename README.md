@@ -1,16 +1,13 @@
-### Hi there 👋
+<p align="center">
+<img src="https://cdn.discordapp.com/attachments/431499091269124117/1139910158974206052/awwww.png">
+</p>
 
-<!--
-**burgerfan/burgerfan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+  <b>wade</b>/doc he/it 20 aroace(?) intp <a href="https://en.pronouns.page/@wadewilson">+</a><br><br>
+enjoyer of 8:11, cell of empireo, deadpool, welcome home, & good omens
+<br>i have a longer list of my interests <a href="https://rentry.co/-spiderman">here</a>, if you're nosy
+<br><br>feel free to sit with me. i'm usually off tab, so whisper
+if you want to talk to me
+<br>limit interaction if you're younger than 16, please!
+  <br><br><i>art is by aziraballs on twitter.</i>
+</p>
