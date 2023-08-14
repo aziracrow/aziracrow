@@ -13,6 +13,7 @@ cell of empireo, deadpool, welcome home, 8:11 & good omens
 <br>i may be shy at first but i usually get used to people quickly!
 <br>if we've talked for a bit, you can totally ask for my discord!
 <br><br><b>if you're younger than 15, keep interactions to a minimum please!</b>
+<br>if i'm on the safe server, i'm probably there for some of my friends
 <br><br><img src="https://cdn.discordapp.com/attachments/431499091269124117/1140659660999901324/ezgif.com-resize.gif">
 <br><i>art is by <a href="https://twitter.com/aziraballs">aziraballs</a> on twitter</i>
 </p>
