@@ -3,7 +3,7 @@
 <img src="https://cdn.discordapp.com/attachments/431499091269124117/1139912072747028561/awwwwww.png">
 </p>
 <p align="center">
-  <b>wade</b>/doc/az <a href="https://pronouns.cc/@aziraphale">+</a> he/it 20 aroace(?) intp
+  <b>wade</b>/doc/az <a href="https://pronouns.cc/@aziraphale">+</a> he/it 20 arospec intp
   <br><i><a href="https://funny.straw.page">more about me here...</a></i><br>
   <img src="https://media.discordapp.net/attachments/903364339464044575/1101868625335431328/B3FD7AFF-EA00-4AF3-8495-A600C4BCB9E4.gif"><br>
 <b>i like</b>
