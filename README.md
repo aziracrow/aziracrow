@@ -7,7 +7,7 @@
   <br><i><a href="https://funny.straw.page/">more about me here...</a></i><br>
   <img src="https://media.discordapp.net/attachments/903364339464044575/1101868625335431328/B3FD7AFF-EA00-4AF3-8495-A600C4BCB9E4.gif"><br>
 <b>whisper to interact</b> since i'm offtab a lot & might not notice
-<br>i may be shy at first but i tend to warm up to people quickly :3
+<br>i may be shy at first and i prefer to speak in whispers anyway..
 <br><br>
 <b>i like</b>
 cell of empireo, 8:11, welcome home, genshin & good omens
