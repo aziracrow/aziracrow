@@ -1,6 +1,6 @@
 <p align="center">
   <i>come what may, do you ever long for true love from me? <a href="https://www.youtube.com/watch?v=SQ0rKFa9ZUU">♫</a></i><br><br>
-<img src="https://cdn.discordapp.com/attachments/431499091269124117/1139912072747028561/awwwwww.png">
+<img src="https://cdn.discordapp.com/attachments/431499091269124117/1146527093203673098/uhhh1.png" width="100%">
 </p>
 <p align="center">
   <b>wade</b>/az/doc [<a href="https://pronouns.cc/@aziraphale">+</a>] he/it ⁎ 20 ⁎ arospec + bi ⁎ intp
