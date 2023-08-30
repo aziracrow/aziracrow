@@ -1,20 +1,20 @@
 <p align="center">
-  <i>come what may, do you ever long for true love from me? <a href="https://www.youtube.com/watch?v=SQ0rKFa9ZUU">♫</a></i><br><br>
-<img src="https://cdn.discordapp.com/attachments/431499091269124117/1146527093203673098/uhhh1.png" width="100%">
+  <i>you don't want to miss the best part, do you?</i><br><br>
+<img src="https://cdn.discordapp.com/attachments/431499091269124117/1146541423534034975/lalallalala2.jpg" width="100%">
 </p>
 <p align="center">
-  <b>wade</b>/az/doc [<a href="https://pronouns.cc/@aziraphale">+</a>] he/it ⁎ 20 ⁎ arospec + bi ⁎ intp
-  <br><i><a href="https://funny.straw.page/">more about me here...</a></i><br>
-  <img src="https://media.discordapp.net/attachments/903364339464044575/1101868625335431328/B3FD7AFF-EA00-4AF3-8495-A600C4BCB9E4.gif"><br>
-<b>whisper to interact</b> since i'm offtab a lot & might not notice
-<br>but also, <b>i'm shy and i prefer to speak in whispers anyway</b>
+  <b>wade</b>/doc ✦ he/it ✦ 20 ✦ arospec + bi ✦ intp
+  <br><i><a href="https://funny.straw.page/">want to know more?</a></i><br>
+  <br><img src="https://cdn.discordapp.com/attachments/431499091269124117/1146533703523246181/cards.png" width="30%"><br>
+<br><b>whisper to interact</b>! i'm usually off tab when i'm online
+<br>and honestly, i'm kind of shy! i enjoy meeting new people though.
 <br>i don't mind if you sit/cuddle with me, i enjoy the company
 <br><br>
 <b>i like</b>
 cell of empireo, 8:11, welcome home, genshin & good omens
 <br><a href="https://rentry.co/-spiderman">my extended list</a> with more of my interests if you're curious
-<br><br><b>if you're younger than 15, keep interactions to a minimum please!</b>
-<br>if i dislike you, i'll just ignore or hide you depending on my reason
-<br><br><img src="https://cdn.discordapp.com/attachments/431499091269124117/1141401742618144868/wings.png">
-<br><i>art on profile made by <a href="https://twitter.com/aziraballs">aziraballs</a>...</i>
+<br><br><b>if you're younger than 15, keep interactions to a minimum</b>
+<br>other than that, if i dislike you, i'll just ignore or hide you
+<br><br><img src="https://cdn.discordapp.com/attachments/431499091269124117/1146536339421007882/tumblr_a18425c7c23fe149eea2af6b4450a7de_8ec8c6ec_1280.png" width="15%"><br>
+  <i>thanks for reading! bye bye now!</i>
 </p>
