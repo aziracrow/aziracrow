@@ -5,7 +5,7 @@
 <p align="center">
   <b>wade</b>/doc ✦ he/it ✦ 20 ✦ arospec + bi ✦ intp
   <br><i><a href="https://funny.straw.page/">want to know more?</a></i><br>
-  <br><img src="https://cdn.discordapp.com/attachments/431499091269124117/1146533703523246181/cards.png" width="30%"><br>
+  <br><img src="https://cdn.discordapp.com/attachments/431499091269124117/1146533703523246181/cards.png" width="35%"><br>
 <br><b>whisper to interact</b>! i'm usually off tab when i'm online
 <br>and honestly, i'm kind of shy! i enjoy meeting new people though.
 <br>i don't mind if you sit/cuddle with me, i enjoy the company
