@@ -1,6 +1,6 @@
 <p align="center">
-  <i>everything stays, right where you've left it</i><br><br>
-<img src="https://cdn.discordapp.com/attachments/431499091269124117/1148130049569063013/woaoh11.png" width="100%">
+  <i>aren't i so much better now that i'm just a normal guy?</i><br><br>
+<img src="https://cdn.discordapp.com/attachments/431499091269124117/1148131455436865556/woaoh12.png" width="100%">
 </p>
 <p align="center">
   <b>wade</b>/doc ✦ he/it ✦ 20 ✦ arospec + bi ✦ intp
