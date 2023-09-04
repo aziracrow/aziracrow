@@ -1,5 +1,4 @@
 <p align="center">
-  <i>aren't i so much better now that i'm just a normal guy?</i><br><br>
 <img src="https://cdn.discordapp.com/attachments/431499091269124117/1148131455436865556/woaoh12.png" width="100%">
 </p>
 <p align="center">
