@@ -2,7 +2,7 @@
 <img src="https://cdn.discordapp.com/attachments/431499091269124117/1148131455436865556/woaoh12.png" width="100%">
 </p>
 <p align="center">
-  <b>wade</b>/doc ✦ he/it ✦ 20 ✦ arospec + bi ✦ intp
+  <b>wade</b>/doc (<a href="https://pronouns.cc/@aziraphale">+</a>) ✦ he/it ✦ 20 ✦ arospec + bi ✦ intp
   <br><i><a href="https://funny.straw.page/">want to know more?</a></i><br><br>
 <b>whisper to interact</b>! i'm usually off tab when i'm online
 <br>and honestly, i'm kind of shy! i enjoy meeting new people though.
