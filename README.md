@@ -10,7 +10,7 @@
 <br><br>
 <b>i like</b>
 adventure time, welcome home, genshin, good omens
-  <br>identity v, our flag means death, cookie run, 8:11 <a href="https://rentry.co/-spiderman">+ more</a>
+  <br>identity v, our flag means death, muppets, 8:11 <a href="https://rentry.co/-spiderman">+ more</a>
 <br><br><b>if you're younger than 15, keep interactions to a minimum</b>
 <br>other than that, if i dislike you, i'll just ignore or hide you
 <br><br><i>thanks for reading! here's <a href="https://funny.straw.page/">my strawpage</a> for more!</i>
