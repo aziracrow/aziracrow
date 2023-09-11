@@ -3,7 +3,7 @@
 </p>
 <p align="center">
   <b>wade</b>/doc (<a href="https://pronouns.cc/@aziraphale">+</a>) ✦ he/it ✦ 20 ✦ arospec + bi ✦ intp
-  <br>if we've talked, feel free to ask for my discord or genshin uid!
+  <br>if we've talked for a bit, feel free to ask for my discord!
   <br><br>
 <b>whisper to interact</b>! i'm usually off tab when i'm online
 <br>also, i'm kind of shy! i enjoy meeting new people though.
