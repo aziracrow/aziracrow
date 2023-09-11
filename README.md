@@ -6,7 +6,7 @@
   <br>if we've talked for a bit, feel free to ask for my discord!
   <br><br>
 <b>whisper to interact</b>! i'm usually off tab when i'm online
-<br>also, i'm kind of shy! i enjoy meeting new people though.
+<br>i also prefer whispers since i'm be anxious around new people
 <br><b>i don't mind if you sit/cuddle with me, i enjoy the company!</b>
 <br>i love when people give me items! i get attached to them...
 <br><br>
