@@ -1,12 +1,14 @@
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/431499091269124117/1148131455436865556/woaoh12.png" width="100%">
+<img src="https://cdn.discordapp.com/attachments/1016485873526767638/1150789881824546906/woaoh12_1.png" width="100%">
 </p>
 <p align="center">
-  <b>wade</b>/doc (<a href="https://pronouns.cc/@aziraphale">+</a>) ✦ he/it ✦ 20 ✦ arospec + bi ✦ intp<br><br>
+  <b>wade</b>/doc (<a href="https://pronouns.cc/@aziraphale">+</a>) ✦ he/it ✦ 20 ✦ arospec + bi ✦ intp
+  <br>if we've talked, feel free to ask for my discord or genshin uid!
+  <br><br>
 <b>whisper to interact</b>! i'm usually off tab when i'm online
-<br>honestly, i'm kind of shy! i enjoy meeting new people though.
-<br>i don't mind if you sit/cuddle with me, i enjoy the company!
-<br>giving me items is the cutest thing ever. i love it. i will burst
+<br>also, i'm kind of shy! i enjoy meeting new people though.
+<br><b>i don't mind if you sit/cuddle with me, i enjoy the company!</b>
+<br>i love when people give me items! i get attached to them...
 <br><br>
 <b>i like</b>
 adventure time, welcome home, genshin, good omens
