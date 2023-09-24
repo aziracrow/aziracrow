@@ -1,8 +1,8 @@
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/1016485873526767638/1150791671190139001/OMGGGG_2.jpg" width="100%">
+<img src="https://cdn.discordapp.com/attachments/1029802397092028436/1155328462341554296/ddawww_1.png" width="100%">
 </p>
 <p align="center">
-  <b>wade</b>/doc (<a href="https://pronouns.cc/@aziraphale">+</a>) 🌿 he/it 🌿 20 🌿 arospec + bi 🌿 intp
+  <b>wade</b>/doc (<a href="https://pronouns.cc/@aziraphale">+</a>) ☁️ he/it ☁️ 20 ☁️ arospec + bi ☁️ intp
   <br>if we've talked for a bit, feel free to ask for my discord!
   <br><br>
 <b>whisper to interact</b>! i'm usually offtab doing other stuff +
