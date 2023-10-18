@@ -9,7 +9,6 @@
 <br>i prefer whispers anyway, i'm usually anxious around people
 <br><b>feel free to sit/cuddle with me, i enjoy the company</b>
 <br>and i love when people give me items :3
-<br><br>
 <br><br><b>if younger than 16, keep interactions to a minimum</b>
 <br>+ if i dislike you, i'll just ignore or hide you
 <br><br><i>thanks for reading! here's <a href="https://drentry.cc/deadpool">my rentry</a> for more!</i>
