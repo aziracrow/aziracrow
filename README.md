@@ -11,5 +11,5 @@
 <br>and i love when people give me items :3
 <br><br><b>if younger than 16, keep interactions to a minimum</b>
 <br>+ if i dislike you, i'll just ignore or hide you
-<br><br><i>thanks for reading! here's <a href="https://drentry.cc/deadpool">my rentry</a> for more!</i>
+<br><br><i>thanks for reading! here's <a href="https://rentry.co/-yaoi">my rentry</a> for more!</i>
 </p>
