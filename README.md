@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://i.imgur.com/hViKlY8.png">
+<img src="https://i.imgur.com/PmYZrsG.png">
 </p>
 <p align="center">
   <b>wade</b>/doc (<a href="https://pronouns.cc/@aziraphale">+</a>) he/it ☁ 20 ☁ arospec + bi
