@@ -2,8 +2,7 @@
 <img src="https://i.imgur.com/VbhZC2e.png">
 </p>
 <p align="center">
-  <b>wade</b>/doc (<a href="https://pronouns.cc/@deadpool">+</a>) he/it 💥 20
-  <br>if we've talked, feel free to ask for my discord!
+  <b>wade</b>/doc (<a href="https://pronouns.cc/@deadpool">+</a>) he/it 💥 20 💥 xntp
   <br><br>
 <b>whisper to interact</b>! i'm usually offtab & i get shy
 <br><b>feel free to sit/cuddle with me</b> i enjoy the company!
