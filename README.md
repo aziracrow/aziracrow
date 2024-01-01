@@ -3,7 +3,7 @@
 <img src="https://i.imgur.com/zJknwfZ.png">
 </p>
 <p align="center">
-  <b>wade</b>/doc (<a href="https://pronouns.cc/@deadpool">+</a>) he/it 20 xntp ― <a href="https://funny.straw.page/">ext. info</a>
+  <b>wade</b>/doc (<a href="https://pronouns.cc/@deadpool">+</a>) he/it 21 xntp ― <a href="https://funny.straw.page/">ext. info</a>
   <br><br>
 <b>whisper to interact</b>! i'm usually offtab + i'm kinda shy
 <br>you can sit/cuddle with me too, i enjoy company :3
