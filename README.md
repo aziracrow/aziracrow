@@ -5,7 +5,7 @@
 <b>wade</b>/doc (<a href="https://pronouns.cc/@deadpool">+</a>) he/it 21 xntp ― <a href="https://funny.straw.page/">ext. info</a>
 <br><br>i like good omens, welcome home, adventure time,
 <br>homestuck, deadpool, smile for me, <a href="https://rentry.co/-spiderman">+ way more</a>!
-<br>if you'd like to chat about them, <b>please do!!</b>
+<br>if you'd like to chat about them... <b>talk to me!! :D</b>
 <br><br>
 <b>whisper to interact</b>! i'm usually offtab + i'm kinda shy
 <br>you're free to sit with me if i'm alone, i enjoy the company
