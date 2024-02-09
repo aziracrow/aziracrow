@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://i.imgur.com/WW25U1a.gif">
+<img src="https://i.imgur.com/DvRBZhN.png" width="200px">
 </p>
 <p align="center">
 <b>wade</b>/doc (<a href="https://pronouns.cc/@deadpool">+</a>) he/it 21 xntp ― <a href="https://funny.straw.page/">ext. info</a>
