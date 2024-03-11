@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://i.imgur.com/1ED6bdW.gif"> <img src="https://i.imgur.com/kNKutNF.gif"> <img src="https://i.imgur.com/ub9zjHd.gif">
+<img src="https://i.imgur.com/1ED6bdW.gif"> <img src="https://i.imgur.com/kNKutNF.gif"> <img src="https://i.imgur.com/ub9zjHd.gif"> <img src="https://i.imgur.com/uc3EKKa.gif">
 </p>
 <p align="center">
 <img src="https://i.imgur.com/Kv97xnp.gif" width="500px">
@@ -15,4 +15,4 @@
 <br>you/your friend hidden, don't ask me to unhide, idgaf.</b>
 <br><br><i>i'm friendly, i promise i don't bite!! ^_^</i>
 </p>
-<p align="center"><img src="https://i.imgur.com/LtlmE4a.gif"> <img src="https://i.imgur.com/c9C5t4q.gif"> <img src="https://i.imgur.com/A2ec4ve.gif"></p>
+<p align="center"><img src="https://i.imgur.com/LtlmE4a.gif"> <img src="https://i.imgur.com/c9C5t4q.gif"> <img src="https://i.imgur.com/A2ec4ve.gif"> <img src="https://i.imgur.com/KSltgW8.gif"></p>
