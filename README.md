@@ -2,7 +2,7 @@
 <img src="https://i.imgur.com/1ED6bdW.gif"> <img src="https://i.imgur.com/kNKutNF.gif"> <img src="https://i.imgur.com/ub9zjHd.gif">
 </p>
 <p align="center">
-<img src="https://i.imgur.com/Kv97xnp.gif" width="100%">
+<img src="https://i.imgur.com/Kv97xnp.gif" width="500px">
 </p>
 <p align="center">
 <b>wade</b>/doc (<a href="https://pronouns.cc/@deadpool">+</a>) he/it 21 xntp ― <a href="https://funny.straw.page/">ext. info</a>
