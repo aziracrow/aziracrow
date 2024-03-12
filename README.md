@@ -11,7 +11,7 @@
 <br>if we like same things, we should be friends! :3
 <br><br><b>if you're younger than 18, keep interactions short.</b>
 <br>detailed dnis are pointless... i can just block/ignore you.
-<br>just don't be a dick n we should get along fine! <b>if i have
+<br>just don't be rude n we should get along okay! <b>if i have
 <br>you/your friend hidden, don't ask me to unhide, idgaf.</b>
 <br><br><i>i'm friendly, i promise i don't bite!! ^_^ i'm not serious at all, really.</i>
 </p>
