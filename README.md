@@ -5,7 +5,7 @@
 <img src="https://i.imgur.com/Kv97xnp.gif" width="500px">
 </p>
 <p align="center">
-<b>wade</b>/doc (<a href="https://pronouns.cc/@deadpool">+</a>) <img src="https://i.imgur.com/IhhjVC0.png" height="16px"> <img src="https://i.imgur.com/XXb0mrf.png" height="16px"> <img src="https://i.imgur.com/ntbd54O.png" height="16px"> he/it 21 xntp ― <a href="https://funny.straw.page/">ext. info</a>
+<b>wade</b>/doc (<a href="https://pronouns.cc/@deadpool">+</a>) <img src="https://i.imgur.com/IhhjVC0.png" height="16px"> <img src="https://i.imgur.com/c3uGXkv.png" height="16px"> <img src="https://i.imgur.com/ntbd54O.png" height="16px"> he/it 21 xntp ― <a href="https://funny.straw.page/">ext. info</a>
 <br><br>i like good omens, welcome home, adventure time,
 <br>idv, deadpool, smile for me, homestuck <a href="https://rentry.co/-spiderman">+ way more</a>
 <br>if we like same things, we should be friends! :3
