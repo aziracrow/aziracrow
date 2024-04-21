@@ -8,5 +8,5 @@
 <br><br><b>if you're younger than 18, keep interactions short</b> (please)
 <br>i don't have a long dni, i'll just block or ignore you if i need to.
 <br>don't be an asshole and i'm sure we'll get along!
-<br><br><i>don't be scared to talk to me, i don't bite ^_^<br><a href="https://maladjusted.123guestbook.com/">sign my guestbook?</a></i>
+<br><br><i><a href="https://maladjusted.123guestbook.com/">sign my guestbook?</a></i>
 </p>
