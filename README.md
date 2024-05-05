@@ -9,5 +9,5 @@
 <br><br><b>if you're younger than 18, keep interactions short</b> (please)
 <br>i don't have a long dni, i'll just block or ignore you if i need to.
 <br>don't be an asshole and i'm sure we'll get along
-<br><br><i><a href="https://retrospring.net/@deadpool">my retrospring</a></i>
+<br><br><i><a href="https://retrospring.net/@deadpool">my retrospring</a> (rip guestbook)</i>
 </p>
