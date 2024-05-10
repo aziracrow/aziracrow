@@ -7,7 +7,7 @@
 <br>whisp2int, i'm usually offtab // ask to see my playtime... hehe
 <br>other spiderman & deadpool fans... Come here... I need you
 <br><br><b>if you're younger than 18, keep interactions short</b> (please)
-<br>i don't have a long dni, i'll just block or ignore you if i need to.
-<br>don't be an asshole and i'm sure we'll get along
+<br>i don't have a long dni, i'll just block or ignore you if i need to!
+<br>as long as you're not an asshole, we're already bffs ;-P
 <br><br><i><a href="https://maladjusted.123guestbook.com/">my guestbook</a></i>
 </p>
