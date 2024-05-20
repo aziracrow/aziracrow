@@ -7,5 +7,5 @@
 <br><br><b>if you're younger than 18, keep interactions short</b> (please)
 <br>i don't have a long dni, i'll just block or ignore you if i need to!
 <br>as long as you're not an asshole, we're already bffs ;-P
-<br><br><img src="https://files.catbox.moe/bsgu1s.gif" width="5%"> <img src="https://files.catbox.moe/yvllkf.gif" width="5%">
+<br><br><a href="https://github.com/kiameiyuri"><img src="https://files.catbox.moe/pkflvv.gif" height="50px"></a><img src="https://files.catbox.moe/bsgu1s.gif" height="50px"> <a href="https://github.com/GlitchyRed"><img src="https://files.catbox.moe/8fg6h8.gif" height="50px"></a>
 </p>
