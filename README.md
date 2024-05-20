@@ -9,6 +9,5 @@
 <br><br><b>if you're younger than 18, keep interactions short</b> (please)
 <br>i don't have a long dni, i'll just block or ignore you if i need to!
 <br>as long as you're not an asshole, we're already bffs ;-P
-<br><img src="https://files.catbox.moe/3e23ty.gif" width="5%"> <img src="https://files.catbox.moe/yvllkf.gif">
-<br><a href="https://retrospring.net/@deadpool">my retrospring</a></i>
+<br><br><img src="https://files.catbox.moe/bsgu1s.gif" width="5%"> <img src="https://files.catbox.moe/yvllkf.gif" width="5%">
 </p>
